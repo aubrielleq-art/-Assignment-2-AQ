@@ -1,4 +1,4 @@
-#Sheridan College
+# Sheridan College
   
 I went to Sheridan College from around the years of 2021-2025. My first program was Art Fundamentals. Growing up, I've always been very artistic and crafty, so I thought doing art in college was what I would've wanted. I was self taught, so I believed learning the fundamentals in a formal setting would make my foundations stronger.
   
